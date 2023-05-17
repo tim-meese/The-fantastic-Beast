@@ -9,3 +9,13 @@
 - Rony
 
 - Dumbledore
+
+- Minerva
+
+- Luna
+
+- Snap
+
+- Wesley family
+
+- 

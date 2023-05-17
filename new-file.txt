@@ -1,1 +1,4 @@
 new file
+
+This is a new file that contains some text
+Nothing special, just some text...

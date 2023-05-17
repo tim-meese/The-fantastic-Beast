@@ -28,4 +28,4 @@
 
 - Seraphina
 
-- new conflict
+- New conflict

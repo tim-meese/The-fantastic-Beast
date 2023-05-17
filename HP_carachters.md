@@ -18,4 +18,8 @@
 
 - Wesley family
 
-- 
+- The one who should not be named
+
+- Dobby
+
+- Malfoy

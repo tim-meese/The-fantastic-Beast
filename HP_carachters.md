@@ -29,5 +29,9 @@
 - Seraphina
 
 - Sirus Black
+
+- Frodo 
+
+- Gandalf
   
   > > > > > > > 
